@@ -10,7 +10,7 @@
 
 
 
-![d]([IMG-20230223-WA0025.jpg](https://postimg.cc/0rzwyVrY))    
+![d](https://postimg.cc/0rzwyVrY)    
 
 Torneo Diciembre 2022
 
