@@ -10,7 +10,7 @@
 
 
 
-![d]([https://photos.app.goo.gl/7CMZC1CYoeAo8qFR8](https://photos.app.goo.gl/BoSu9egka3fScT7k8)https://photos.app.goo.gl/BoSu9egka3fScT7k8)
+![d](https://imgur.com/a/iHX5bgU)
 
 Torneo Diciembre 2022
 
